@@ -10,3 +10,5 @@ Why do programmers hate nature? Too many bugs.
 Why couldn't the jalapeno practice archery? Because it didn't habanero
 
 Why was the broom late for school?    It overswept!
+
+What’s brown and sticky? A stick.
