@@ -39,3 +39,5 @@ Infinite mathematicians walk into a bar, and (respectively) ask for 1, 2, ... dr
 Why did the computer go to the doctor? Because it caught a virus.
 
 Why did the scarecrow get promoted? Because he was outstanding in his field. 
+
+How do you find a cheetah in the dark? You use a spotlight.
