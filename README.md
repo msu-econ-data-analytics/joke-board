@@ -40,4 +40,6 @@ Why did the computer go to the doctor? Because it caught a virus.
 
 Why did the scarecrow get promoted? Because he was outstanding in his field. 
 
+What is brown and sticky? A stick
+
 How do you find a cheetah in the dark? You use a spotlight.
