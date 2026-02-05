@@ -31,6 +31,7 @@ What's the difference between a deer and a reindeer? A reindeer has to carry an 
 
 Why did the math book look sad?  Because it had too many problems.
 
+What do you call a sleeping bull? A bulldozer
 Why did the PowerPoint presentation cross the road? To get to the other slide.
 
 Infinite mathematicians walk into a bar, and (respectively) ask for 1, 2, ... drinks.  The bartender says "OK, here's -1/12 of a drink to share".
